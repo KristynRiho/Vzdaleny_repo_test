@@ -1,1 +1,0 @@
-budu smazán
